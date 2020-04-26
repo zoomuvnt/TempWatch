@@ -1,0 +1,2 @@
+# TempWatch
+It gives a tasteful appearance to your wrist. The watch comes in calm and various hues. The watch is a touchscreen and its interface is very easy to understand. It works actually easily and rapidly. This TempWatch ready to move worldwide and high sought after in United States (U.S.), Israel, Italy, Greece, Canada, Australia, United Kingdom (UK), Cyprus, Spain, Belgium. Click here https://www.marketwatch.com/press-release/tempwatch-smartwatch-to-monitor-real-time-body-temperature---latest-report-2020-04-24
